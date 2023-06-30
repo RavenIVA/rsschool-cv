@@ -1,1 +1,1 @@
-# rsschool-cv
+https://RavenIVA.github.io/rsschool-cv/cv
